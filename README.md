@@ -1,4 +1,4 @@
-- 👋 Olá está é a minha conta de estudos
+- 👋 Olá está é a minha conta da faculdade
 
    ▬▬▬.◙.▬▬▬<br>
   ═▂▄▄▓▄▄▂<br>
